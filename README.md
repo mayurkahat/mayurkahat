@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on linkedin
 - 📫 How to reach me www.linkedin.com/in/mayurkahat
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I'm going to land my paid internship in dec 20205.
+- ⚡ Fun fact: I'm going to land my paid internship in dec 2025.
 
 <!---
 mayurkahat/mayurkahat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
